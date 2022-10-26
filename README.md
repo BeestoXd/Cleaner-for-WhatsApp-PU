@@ -22,8 +22,7 @@ Made By:
 - Cody
 - Charles
 
-# Social Media
+# Social Media:
 
 Discord: https://discord.gg/yZQ9bNYRtA
-Official Website: 
-Release: 
+Official Website:
