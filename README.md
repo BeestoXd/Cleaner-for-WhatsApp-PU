@@ -25,4 +25,4 @@ Made By:
 # Social Media:
 
 Discord: https://discord.gg/yZQ9bNYRtA
-Official Website: https://whatsapp-pu.myvnc.com/
+Official Website: https://whatsapp-pu.
